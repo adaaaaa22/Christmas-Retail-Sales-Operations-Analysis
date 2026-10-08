@@ -138,3 +138,6 @@ The insights from this analysis can help retailers:
 Data Analyst
 
 📌 Transforming data into meaningful insights through analytics and storytelling.
+LinkedIn: www.linkedin.com/in/amuchuoka-adaobi-lilian-1492492a6
+
+Portfolio: https://analyticsbyadaobi.lovable.app/
